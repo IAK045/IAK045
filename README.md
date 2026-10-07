@@ -39,7 +39,7 @@
 ---
 
 ###  Connect with Me
-- 💼 [LinkedIn](https://linkedin.com/in/isteyaque-ahmad-khan-5995a0310)
+- 💼 [LinkedIn](https://www.linkedin.com/in/isteyaque)
 
 - 📧 Email: kaifkhan746192@gmail.com
 
